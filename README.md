@@ -1,3 +1,3 @@
 # Faheem
 New on GitHub first repository
-i like:Dance:acting:.
+i like: Dance: Acting: Singing.
